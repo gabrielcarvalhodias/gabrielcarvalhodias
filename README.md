@@ -1,4 +1,4 @@
-### Sou bom no que faço e errônio no que imagino. Me perco em meus traços, mas jamais deixarei de lutar pelo o que acredito!
+### Sou bom no que faço e errôneo no que imagino. Me perco em meus traços, mas jamais deixarei de lutar pelo o que acredito!
 
 😇 - Sinta-se à vontade para vasculhar meus repositórios.
 
