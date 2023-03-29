@@ -1,10 +1,8 @@
-### Sou bom no que faço e errôneo no que imagino. Me perco em meus traços, mas jamais deixarei de lutar pelo o que acredito!
-
 😇 - Sinta-se à vontade para vasculhar meus repositórios.
 
 💻 - Posso te ajudar com este rico universo tecnológico.
 
-💭 - Tua existência morna não suporta meu ser em ebulição.
+💭 - Vivendo e aprendendo.
 
 
 <div align="center">
